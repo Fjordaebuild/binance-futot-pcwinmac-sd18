@@ -1,4 +1,4 @@
-# 
+# VIP binance futures bot flux de travail for Mac OS | Élite binance futures bot flux de travail for PC Windows. Featuring API d'échange centralisé and analyse de la dynamique — optimized for maximum performance.
 
 
 
